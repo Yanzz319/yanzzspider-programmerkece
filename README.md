@@ -1,2 +1,0 @@
-# yanzzspider-programmerkece
-tau ah
